@@ -3,8 +3,9 @@
 <p>&nbsp;</p>
 <p><strong>Official Facebook Page:-&nbsp;<span style="font-family: Caladea, serif;"><span style="font-size: small;"><a href="https://www.facebook.com/CBDGummiesTrifolaFarms/" target="_blank">https://www.facebook.com/CBDGummiesTrifolaFarms/</a></span></span></strong></p>
 <p>&nbsp;</p>
-<p><a href="https://www.facebook.com/CBDGummiesTrifolaFarms/">Read actual patron reports and studies at the back of Trifola Farms CBD Gummies .</a></p>
+<h2><a href="https://www.facebook.com/CBDGummiesTrifolaFarms/">Read actual patron reports and studies at the back of Trifola Farms CBD Gummies .</a></h2>
 <p>&nbsp;</p>
+<p>&nbsp;<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSsI41-fSUSxObqaTSNVRjCGShc0OkCDhV26A&amp;s" alt="EverGreen Farms CBD Gummies" /></p>
 <h2><span style="text-decoration: underline;">What Are Trifola Farms CBD Gummies ?</span></h2>
 <p>Trifola Farms CBD Gummies are infused with cannabidiol (CBD), a herbal compound derived from the hemp plant. Unlike THC, that is the psychoactive compound in marijuana, CBD does not produce a &ldquo;excessive.� Instead, it interacts with the body&rsquo;s endocannabinoid system (ECS) to sell stability and ordinary well-being.</p>
 <p>These gummies are available in a diffusion of flavors, making them an enjoyable and smooth manner to consume CBD. They are designed to offer lengthy-lasting relief from stress, anxiety, continual pain, and other not unusual health issues.</p>
